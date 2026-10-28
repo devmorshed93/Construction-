@@ -1,1 +1,2 @@
-# Construction-
+# Construction- 
+Builtex delivers a strong, credible online presence for construction firms, contractors, and building companies that need their website to project the same solidity and reliability as their projects. Built for the construction and building industry, it moves away from generic corporate layouts and instead uses bold imagery, structured sections, and confident typography to communicate expertise from the first scroll.
